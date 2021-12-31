@@ -1,2 +1,0 @@
-# Mint-signup-odino
-
